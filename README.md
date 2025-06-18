@@ -1,4 +1,4 @@
-any prn 🍕 I dont mind c+h
+any pronoun 🍕 I dont mind c+h
 
 
 https://github.com/user-attachments/assets/b7ff92df-b868-4af4-b5fc-2930bf221974
