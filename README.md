@@ -6,10 +6,3 @@
 
 
 
-
-
-https://github.com/user-attachments/assets/b8cdb9c8-1e07-4e0a-b80a-0b70d814b7a0
-
-
-
-<p align="center"> I love 007 alot look at my mii of him
