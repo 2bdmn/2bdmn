@@ -1,8 +1,4 @@
-<p align="center"> any pronoun 🪻 I dont mind c+h
+<p align="center"> my free time consists of: pelting people with rocks, pelting people with pebbles, drinking water and pelting people with rocks
   
-<p align="center"> <img width="99" height="56" alt="tumblr_06264a2e7cf111d5a5101e9626ad2ee2_947b8d1d_100" src="https://github.com/user-attachments/assets/3018de7c-8a1a-44d1-a3dd-d83e5663f0c2" /> <img width="99" height="56" alt="tumblr_539fb0872df0522e101c77f45157ba11_a461fc0f_100" src="https://github.com/user-attachments/assets/74767ddb-bbe4-4ec9-983a-7cfd1bd4cc59" /> <p align="center"> <img width="99" height="56" alt="https://github.com/user-attachments/assets/07f0e045-625f-48d6-84cb-dab3fd56e9b1" src="https://github.com/user-attachments/assets/34463010-4e24-4a8d-bd66-99cc58f343b2" /> <img width="99" height="56" alt="https://github.com/user-attachments/assets/8bf9b618-ed6a-4308-a0e3-3913f1360522" src="https://github.com/user-attachments/assets/8bf9b618-ed6a-4308-a0e3-3913f1360522" />
-
-
-
-
-
+<p align="center"> <img src="https://cdn.discordapp.com/attachments/677210289829183498/1458538102837481664/tumblr_195dd21123ea059c95796fc986c66de8_f0c4f756_540_1.gif?ex=696000f6&is=695eaf76&hm=3c73835b0c96b588eff12dc5ef8fd92a37f586a37a65f52e7af20beb5317bcd4&" width="200" height="200" /> 
+<p align="center"> thank you 🪻
