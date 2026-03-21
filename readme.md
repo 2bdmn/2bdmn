@@ -5,7 +5,7 @@
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/677210289829183498/1483898365178675383/tumblr_57fece57e5b8a271d175296cfb783a03_27243e43_100.gif?ex=69bc438b&is=69baf20b&hm=0d0fb98b81868580aa51ee95c3177745a8f88c01234d2eb18a9c7129464c7729 " width="120" height="56" />
  <img width="99" height="56" alt="https://github.com/user-attachments/assets/07f0e045-625f-48d6-84cb-dab3fd56e9b1" src="https://github.com/user-attachments/assets/34463010-4e24-4a8d-bd66-99cc58f343b2" /> <img width="120" height="56" alt="tumblr_ae958a8f8a6b27a302f91feceade17d3_b72bdcaf_100" src="https://github.com/user-attachments/assets/6433dbf5-2643-4bf0-ada5-880e58cf24db" /> 
- <img src="https://cdn.discordapp.com/attachments/677210289829183498/1483917093278847192/tumblr_ca6db5c13a88d33783bd65194f5f2178_b2a98db8_100.gif?ex=69bc54fc&is=69bb037c&hm=8832e07e0d500da3bcb91e77b8ed7ef5b1ad8454c66578c7c31b3ef87db4bf78" width="120" height="56" />
+ <img src="https://github.com/user-attachments/assets/51e04c5a-f8bf-40fe-8318-a0133d01227b" />
 
   
 <img width="99" height="56" alt="tumblr_6d8fefa698c82d9a3639877ab1472d92_b6df4539_100" src="https://github.com/user-attachments/assets/eb31cc8e-7bce-4695-bd2b-da139a905e1d" />
