@@ -12,7 +12,7 @@
 <img width="99" height="57" alt="tumblr_9933779115fdc8f03e7e4c46511066e6_f1b43fd8_100" src="https://github.com/user-attachments/assets/385b78b0-5cd2-467e-b6c1-116f3490123f" /> 
 <img src="https://github.com/user-attachments/assets/6897bff1-2e24-487a-b56e-099bfc6eafe7" />
 
-<img src="https://cdn.discordapp.com/attachments/677210289829183498/1483923623986069505/tumblr_d607638c364443f1be6a5a13729c8f4b_89344934_100.png?ex=69bc5b11&is=69bb0991&hm=10bb5213f33a954758ce8837bc622497a3297344660005db742c3ee5b39c00e5" />
+<img src="https://github.com/user-attachments/assets/43b54a58-d7b3-4526-8a76-290faf183156" />
 
 <p align="center"> <img src="https://github.com/user-attachments/assets/e28ac571-a962-4a9e-b0bc-63c54241c69a" width="1000" height="100" />
 
